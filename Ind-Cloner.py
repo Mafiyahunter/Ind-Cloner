@@ -1,4 +1,7 @@
-git clone https:GitHub/Mafiyahunter.com
-beta baap se pange nahi 
-Cloning commands hai free use kar bachodi nahi 
-import Marshal 3:) (y) :-) 3:) (y) :-) 3:) (y) :-) 3:) (y) :-) 3:) (y) :-) 3:) (y) :-) 
+Import Mafiya
+Import Your Father
+Tera baap ka commands hai kya 😹
+GitHub - https://github.com/Mafiyahunter/Ind-Cloner.git
+Import Marshal
+:) :D x 3:) :P :) :D x 3:) :P:) :D x 3:) :P:) :D x 3:) :P:) :D x 3:) :P:) :D x 3:) :P:) :D x 3:) :P:) :D x 3:) :P:) :D x 3:) :P:) :D x 3:) :P:) :D x 3:) :P:) :D x 3:) :P:) :D x 3:) :P:) :D x 3:) :P:) :D x 3:) :P:) :D x 3:) :P:) :D x 3:) :P:) :D x 3:) :P:) :D x 3:) :P
+		 
